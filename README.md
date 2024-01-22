@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about acupuncture.
 - 📫 How to reach me: goodgoodhead@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: my favourite cartoon is ### "おジャ魔女どれみ"
-- 
+- ⚡ Fun fact: my favourite cartoon is  ## "おジャ魔女どれみ"
+  
   
