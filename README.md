@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on an R project and lots of group work.
 - 🌱 I’m currently learning general knowledge about global health.
 - 👯 I’m looking to collaborate on something about traditional medication.
-- 🤔 I’m looking for help with 
+- 🤔 I’m looking for help with statistics and debate.
 - 💬 Ask me about acupuncture.
 - 📫 How to reach me: goodgoodhead@gmail.com
 - 😄 Pronouns: she/her
